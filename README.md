@@ -62,13 +62,6 @@
 
 ---
 
-## 📫 **Contact Me**
-
-- 📧 Email: *Add your email if you want*
-- 💬 Telegram: *Add your username لو عايزني أضيفه*
-
----
-
 <div align="center">
 
 ### ⚡ *Thanks for visiting my profile!*
